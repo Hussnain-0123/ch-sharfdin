@@ -1,3 +1,2 @@
 # ch-sharfdin
-shoe hub storeowc
-ooooooooooooooo
+shoe hub storeow
